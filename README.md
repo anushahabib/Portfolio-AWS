@@ -17,3 +17,6 @@
 - Customer Support @ BT (tech + customer-facing role)
 - Former Catalog Executive @ Daraz
 
+📫 Reach me:
+[LinkedIn](www.linkedin.com/in/anusha-habib) | [Email](anushahabib@gmail.com)
+
